@@ -1,0 +1,1 @@
+The Math Club is a community dedicated to exploring mathematics beyond the classroom. We focus on developing problem-solving skills, encouraging collaboration, and fostering a deeper appreciation for the beauty of math.
